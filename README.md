@@ -1,3 +1,3 @@
 # hello
 extra repository
-it is ok to have you on board
+would you like to have me on board of directors
